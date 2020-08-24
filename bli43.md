@@ -1,0 +1,1 @@
+I am Bohan Li, a master computer science student.My interests are machine learning,deep learning and data analysis. I am doing a research about machine learning parameters optimization.At same time, I am also interested in reinforcement learning,computer vision and robotics. 
