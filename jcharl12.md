@@ -1,0 +1,1 @@
+Jama "MeiLi" Charles- I go by MeiLi, which is said like "maylee". I'm a 2nd year PhD in Computer Science and Dr. Berry is my advisor. Some interests include cosplay (I sew most of my costumes, make armor + props, etc), sleeping, and watching anime. I also play multiple instruments including piano, guitar, and violin.
